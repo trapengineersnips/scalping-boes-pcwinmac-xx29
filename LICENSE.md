@@ -1,4 +1,4 @@
-# 
+# Seguro scalping bot for derivatives modelos para Mac OS | Código aberto scalping bot for derivatives modelos para PC Windows. Com estratégia de reversão à média e mineração de liquidez — otimizado para máximo desempenho em cada plataforma.
 
 
 
